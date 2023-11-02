@@ -1,1 +1,1 @@
-# Raspored-za-veleu-ili-te-Polytechnic-schedule-
+# Lecture-schedule-at-the-Polytechnic 
